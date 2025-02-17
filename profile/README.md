@@ -1,4 +1,5 @@
 ## Hi there 👋
+![d015fcde9edcfecc25b124f6eb81aade 512x512x4](https://github.com/user-attachments/assets/b1eb7bbe-3dc1-4b84-a8f4-daaca0b86277)
 
 **Here are some ideas to get you started:** <br>
 
