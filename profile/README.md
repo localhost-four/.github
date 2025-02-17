@@ -1,5 +1,5 @@
 ## Hi there 👋
-![d015fcde9edcfecc25b124f6eb81aade 512x512x4](https://github.com/user-attachments/assets/b1eb7bbe-3dc1-4b84-a8f4-daaca0b86277)
+![9f22bf3a-def4-4a7e-812b-06c261e20d96](https://github.com/user-attachments/assets/118eda7d-dcc9-43aa-bb5b-0c56b93b05a7)
 
 **Here are some ideas to get you started:** <br>
 
